@@ -4,7 +4,7 @@
 
 **Lighting up the Grand Congo through technology**
 
-*Miinda = Light in Kikongo · Built in Kigali, Rwanda*
+*Miinda = Light in Kikongo · Built in Goma, DRC*
 
 ---
 
